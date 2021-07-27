@@ -1,2 +1,0 @@
-# Holili
-Jangan lupa subscribe
